@@ -9,3 +9,4 @@ Takte
 ako si alden
 jacob
 ako
+pogiiiiikooo
