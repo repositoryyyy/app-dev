@@ -6,3 +6,6 @@ My first repository
 # Zodiac
 Hayop si Ramos
 Takte
+ako si alden
+jacob
+ako
