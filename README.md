@@ -4,3 +4,5 @@ My first repository
 *One Piece*
 ## Jurassic Park
 # Zodiac
+Hayop si Ramos
+Takte
