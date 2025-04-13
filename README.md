@@ -16,8 +16,7 @@ A Spanish heist drama series where a mastermind, known as the Professor, recruit
 
 *Spider-man: Into the Spider-verse*
 
-![image](https://github.com/user-attachments/assets/4cc7ed66-f875-4d97-b622-9632876fa6ec)
-
+![image](https://github.com/user-attachments/assets/c71b4b00-f26d-40da-808b-f60c7adbe945)
 
 Released Date: December 14, 2018
 
