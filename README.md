@@ -11,7 +11,7 @@ My first repository
 
 ### **Rating: 8.2/10 ⭐⭐⭐⭐**
 
-### **Status: Ended in 2021
+### **Status: Ended in 2021**
 
 ### **A Spanish heist drama series where a mastermind, known as the Professor, recruits a group of eight robbers to pull off a daring heist on the Royal Mint of Spain, taking hostages and attempting to print and escape with billions of euros created by Alex Pina**
 
